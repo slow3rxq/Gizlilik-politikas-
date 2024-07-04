@@ -1,0 +1,2 @@
+# Gizlilik-politikas-
+politika
